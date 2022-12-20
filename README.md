@@ -1,2 +1,2 @@
 
-https://pedrostraik.github.io/pedroeduardo.github.io/ meu curriculo virtual
+https://pedrostraik.github.io/pedroeduardo/ meu curriculo virtual
